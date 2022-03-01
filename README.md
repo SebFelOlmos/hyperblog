@@ -5,3 +5,4 @@ Este es el primero, espero, que hago.
 La vida de Pancha es lo mejor, para mas información seguir la en el [instagram más bello del mundo](https://www.instagram.com/panchaolmosnunez/?hl=es-la "instagram más bello del mundo")
 ## Pancha es lo mejor
 Siempre lo será
+Incluye la vida y obra de ella
